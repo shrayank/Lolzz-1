@@ -1,2 +1,2 @@
 # Lolzz
-Lolzzzzzzzzzzzzzzzzzzzzzz
+Lolzz
